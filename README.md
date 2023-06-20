@@ -20,6 +20,7 @@ You can get in touch with me through the following channels:
 GitHub: @itsmemauli
 Email: maulipatel18112003@gmail.com
 LinkedIn: www.linkedin.com/in/itsmemauliii
+Instagram:-@itsmemauliii
 
 Don't hesitate to connect with me! I'm open to discussions, networking, and collaboration opportunities.
 
